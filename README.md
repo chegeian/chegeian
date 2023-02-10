@@ -5,7 +5,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on myself
 - 🌱 I’m currently learning preety much everything
 - 👯 I’m looking to collaborate with others
-- 🤔 I’m looking for help with anything i can
+- 🤔 I’m looking to help with anything i can
 - 💬 Ask me about ...
 - 📫 How to reach me: chegeian@gmail.com
 - ⚡ Fun fact: I was once a cow
