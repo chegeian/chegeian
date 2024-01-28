@@ -6,8 +6,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning preety much everything
 - 👯 I’m looking to collaborate with others
 - 🤔 I’m looking to help with anything i can
-- 💬 Ask me about ...
-- 📫 How to reach me: chegeian@gmail.com
+- 💬 Ask me about cows...
+- 📫 How to reach me: chegethedev@gmail.com
 - ⚡ Fun fact: I was once a cow
 
 ### Connect with me:
